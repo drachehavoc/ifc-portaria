@@ -11,7 +11,7 @@ Designação da servidora CÁTIA DOS REIS MACHADO, para compor a Comissão Respo
 
 Publicado em 01/10/2018, [2018](http://www.camboriu.ifc.edu.br/portarias/category/2018/ "Ver todos os posts em 2018"), [Comissões/Núcleos/Comitês](http://www.camboriu.ifc.edu.br/portarias/category/comissoes-nucleos-comites/ "Ver todos os posts em Comissões/Núcleos/Comitês").
 
-Dispensação de servidores do Núcleo Docente Básico (NDB) do Curso Técnico em Informática do Instituto Federal Catarinense – _Campus_ Camboriú, constituído pela Portaria Nº 081/GDG/IFC-CAM/2017.
+Dispensação de servidores do Núcleo Docente Básico (NDB) do Curso Técnico em Informática do Instituto Federal Catarinense – _Campus_  Camboriú, constituído pela Portaria Nº 081/GDG/IFC-CAM/2017.
 
 [Port.007.17](Port.007.17.pdf)
 
@@ -170,7 +170,7 @@ Membros envolvidos:
 
 Publicado em 08/08/2017, [2017](http://www.camboriu.ifc.edu.br/portarias/category/coordenacoes-curso/coordenacoes-curso-2017/ "Ver todos os posts em 2017"), [2017](http://www.camboriu.ifc.edu.br/portarias/category/funcoes-gratificadas/funcoes-gratificadas-designacao/funcoes-gratificadas-designacao-2017/ "Ver todos os posts em 2017"), [Coordenações de Curso](http://www.camboriu.ifc.edu.br/portarias/category/coordenacoes-curso/ "Ver todos os posts em Coordenações de Curso"), [Designação](http://www.camboriu.ifc.edu.br/portarias/category/funcoes-gratificadas/funcoes-gratificadas-designacao/ "Ver todos os posts em Designação").
 
-DESIGNAÇÃO do servidor DANIEL DE ANDRADE VARELA, para exercer a Função de Coordenador Substituto do Curso Superior de Tecnologia em Sistemas para Internet, do Instituto Federal Catarinense – _Campus_Camboriú.
+DESIGNAÇÃO do servidor DANIEL DE ANDRADE VARELA, para exercer a Função de Coordenador Substituto do Curso Superior de Tecnologia em Sistemas para Internet, do Instituto Federal Catarinense – _Campus_ Camboriú.
 
 [Port.253.17](Port.253.17.pdf)
 
